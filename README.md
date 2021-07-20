@@ -1,4 +1,4 @@
 ### Hi
 
-📫Notion: www.notion.so/hibee
+📫Notion: www.notion.so/hibeek
 
